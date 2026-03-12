@@ -8,6 +8,7 @@ I am currently in the pre-undergraduate stage, and I recognize the vastness of t
 
 1️⃣**Neuromatch Academy (NMA):** CompNeuro course materials.
 
-2️⃣**3Blue1Brown:** Linear algebra intuition and mathematical frameworks.
+2️⃣**3Blue1Brown:** Essence of Linear Algebra.
 
-### Here’s to learning‼️
+
+### Here’s to learning‼️🥂
