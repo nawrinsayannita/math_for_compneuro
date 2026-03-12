@@ -11,4 +11,4 @@ I am currently in the pre-undergraduate stage, and I recognize the vastness of t
 2️⃣**3Blue1Brown:** Essence of Linear Algebra.
 
 
-### Here’s to learning‼️🥂
+### Here’s to learning❗❗
